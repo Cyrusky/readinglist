@@ -11,3 +11,7 @@
 ##  **正在阅读** 三体全集 刘慈欣 *2018年2月1日*
 
 > https://www.amazon.cn/gp/product/B00S4OK1ZS/ref=oh_aui_d_detailpage_o02_?ie=UTF8&psc=1
+
+##  **完成阅读** 哲学家们都干了些什么? *2018年2月25日*
+
+> https://www.amazon.cn/dp/B0123MCPXM/ref=sr_1_2?s=digital-text&ie=UTF8&qid=1519528969&sr=1-2
